@@ -1,3 +1,4 @@
+![Screenshot_20241014_202537](https://github.com/user-attachments/assets/35590d07-9927-427c-af3d-d8e5e7d718c8)
 ![Screenshot_20241015_214308](https://github.com/user-attachments/assets/2c274d2e-4b94-41da-baa4-2123ad2083cf)
 - 👋 Hi, I’m @Lameravena10
 - 👀 I’m interested in ...
